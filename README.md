@@ -1,1 +1,2 @@
 # Sikakui
+https://chatgpt.com
